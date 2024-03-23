@@ -1,2 +1,2 @@
 # Nomes
-## Guilherme Silva, Marcos Adorno, William Souza e Ana Vitória
+## Guilherme Silva, Marcos Fabrício, William Sousa e Ana Vitória.
